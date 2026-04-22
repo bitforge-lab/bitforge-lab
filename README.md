@@ -1,0 +1,1 @@
+![MyBanner](URL_DEL_TUO_BANNER)
